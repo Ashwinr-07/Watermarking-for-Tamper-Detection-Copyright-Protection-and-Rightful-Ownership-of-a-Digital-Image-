@@ -1,0 +1,1 @@
+# Watermarking-for-Tamper-Detection-Copyright-Protection-and-Rightful-Ownership-of-a-Digital-Image-
